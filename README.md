@@ -1,2 +1,2 @@
 # 
-dding some personal projects to create a bigger online presence
+Adding some personal projects to create a bigger online presence
